@@ -1,1 +1,1 @@
-quedamos min 16 https://www.youtube.com/watch?v=OVESuyVoPkI
+quedamos el despliegue https://www.youtube.com/watch?v=OVESuyVoPkI
